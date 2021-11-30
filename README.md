@@ -1,4 +1,4 @@
-### :fr: Hi, is SUBLiME - Association developement here ! :fr:
+### :fr: Hi, is SUBLiME - Master stats here ! :fr:
 
 - SUP2Ak :
 
